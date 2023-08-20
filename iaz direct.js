@@ -1,1 +1,1 @@
-<script src='https://mosqueworking.com/a4quv1jp?key=e86322e9dfc8dc1b4ae1e54c6d96e0ad'/>
+<script src='https://mosqueworking.com/dpywn9uks?key=b604680720241a8cc8b9bd8e9500fcbe'/>
